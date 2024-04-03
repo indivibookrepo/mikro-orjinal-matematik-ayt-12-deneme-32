@@ -1,0 +1,1 @@
+# mikro-orjinal-matematik-ayt-12-deneme-32
